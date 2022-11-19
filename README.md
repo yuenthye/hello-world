@@ -2,7 +2,7 @@
 
 Hi, this is Yuen Thye
 
-I'm now attending a JFSD course that will allow me to have a basic knowledge and mindset of a JFSD.
+I'm now attending a JFSD course that will allow me to have a basic knowledge of JFSD.
 
 this is a test
 
